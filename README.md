@@ -1,1 +1,0 @@
-# Akmanaeva-Dinara.github.io
